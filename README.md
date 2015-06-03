@@ -4,3 +4,4 @@ Hello m'lady.
 Friendo
 You are in the throne room.
 Burleigh is awesome. He's a little bear.
+BUrleigh is a dog
